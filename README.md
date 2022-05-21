@@ -1,0 +1,4 @@
+- yoooooooooo im fried
+- i like dance, singing and acting
+- i play a lot of beat saber, vrc and sims 4
+- discord: friedhamburg #3854 
